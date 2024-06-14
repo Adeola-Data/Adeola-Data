@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Adeola-Data
+- 👀 I’m interested in Data Analytics 
+- 🌱 I’m currently learning Power BI in data analysis 
+- 💞️ I’m looking to collaborate on Healthcare, finance and technology 
+- 📫 How to reach me: Linkedin & IG:  Odeniran Adeola.
+- 😄 Pronouns: Miss
+- ⚡ Fun fact: I'm eager to learn!
